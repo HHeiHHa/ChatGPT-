@@ -24,10 +24,9 @@ QQ分享群：811684819 
 
 V：HHeiTTKX        Q：656388803 
 
-
 谷歌账号登录，可以改密码。手工注册号，质量保证。
 
-也可在购买链接购买（可直接点我）：https://shop.sxjf8789.com/links/682D284B     【库存有限】    
+也可在购买链接购买：https://shop.sxjf8789.com/links/682D284B     【库存有限】    
 
 注意：登录ChatGPT官网需要魔法，可找客服推荐魔法网站
 
@@ -35,16 +34,17 @@ ChatGPT现在在国内使用魔法无法注册，剩一批库存号，API KEY
 含5美元，绝版号，账号不多，赶快上车。
 
 在线教程文档：
-《ChatGPT注册教程》（可直接点我）
+《ChatGPT注册教程》
 https://kdocs.cn/l/cqyJmFzJRuJW
 
-《解决ChatGPT登录和使用问题集锦》（可直接点我）
+《解决ChatGPT登录和使用问题集锦》
 https://kdocs.cn/l/cqWDEmVbgrlE
 
 我们也有PLUS(GPT4.0)账号，代开MJ绘画，由于4.0账号时限一个月，我们不储存账号。需要的联系客服    
 V：HHeiTTKX      Q：656388803
 
 我们拥有专业的售后服务，售后群内包含大量ChatGPT以及相关AI资料，并且不断更新。
+![屏幕截图 2023-04-23 201438_edit_364908131778672](https://github.com/HHeiHHa/ChatGPT-/assets/128380530/c549b056-3479-49d9-8c98-aacb43276351)
 
 共享账号同一时刻只允许一个人提问                             |                           
 平台分享账号仅作学习使用，请勿用作非法用途
