@@ -45,6 +45,8 @@ V：HHeiTTKX      Q：656388803
 
 我们拥有专业的售后服务，售后群内包含大量ChatGPT以及相关AI资料，并且不断更新。
 ![屏幕截图 2023-04-23 201438_edit_364908131778672](https://github.com/HHeiHHa/ChatGPT-/assets/128380530/c549b056-3479-49d9-8c98-aacb43276351)
+![屏幕截图 2023-04-23 114823_edit_364990198727523](https://github.com/HHeiHHa/ChatGPT-/assets/128380530/1d03a8ba-8149-4285-8a62-6a216da1c258)
+![屏幕截图 2023-04-23 114832_edit_364962581061752](https://github.com/HHeiHHa/ChatGPT-/assets/128380530/f799fd00-aecf-4b40-9294-f4a8484c4b9a)
 
 共享账号同一时刻只允许一个人提问                             |                           
 平台分享账号仅作学习使用，请勿用作非法用途
