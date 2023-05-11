@@ -5,15 +5,15 @@ ChatGPT官网：chat.openai.com（需使用膜法）
 
 QQ分享群：811684819 
 
-2023/05/10  ChatGPT免费共享账号：
+2023/05/11  ChatGPT免费共享账号：
 
 浏览器打开无痕模式
 
 1. 账号：gf3nm6Kr@9922.fun
-   密码：zcbmmbcz2233
+   密码：zzxxcc2233
 
 2. 账号：jacobnes@gmail.com
-   密码：adgjjgda3344
+   密码：adgjjgdd5544
 
 3. 账号：fpgTcOJp@ypsch.org.uk
    密码：yvQcwzxj
